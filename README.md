@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 HR Staff at Maxion Wheels (Thailand)<br>🤝 Studied political science at Chulalongkorn University<br>🌱 Currently learning about data analytics<br>💬 #learninginpublic in my [under progress]
+🔭 HR Staff at Maxion Wheels (Thailand)<br>🤝 Studied Political Science at Chulalongkorn University<br>🌱 Currently learning about data analytics<br>💬 #learninginpublic in my [under progress]
 
 
 ## 🌐 Socials:
